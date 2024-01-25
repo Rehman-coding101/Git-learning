@@ -1,4 +1,4 @@
 # Webpage
 # OneLove
-# Blessed Are Those Who Struggle And Fight For Righteousness!
+# Blessed Are Those Who Hunger And Fight For Righteousness!
 # Jude Bellingham
