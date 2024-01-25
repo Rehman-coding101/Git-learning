@@ -1,3 +1,3 @@
-# Webpage, Real Madrid
+# Webpage
 # OneLove
-# Blessed Are Those Who Struggle, Thirst And Fight For Righteousness!
+# Blessed Are Those Who Struggle, Th And Fight For Righteousness!
