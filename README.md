@@ -1,3 +1,3 @@
 # Webpage
 # OneLove
-# Blessed Are Those Who Struggle, Th And Fight For Righteousness!
+# Blessed Are Those Who Struggle And Fight For Righteousness!
